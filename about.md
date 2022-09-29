@@ -16,4 +16,5 @@ As a true Montreal native, I play hockey once a week and enjoy watching the habs
 
 ### Contact me
 Message me for research inquiries, internship/job opportunities or anything else!
+
 [justine@gehring.io](mailto:justine@gehring.io)
